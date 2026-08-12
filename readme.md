@@ -42,7 +42,7 @@ Despite my present qualifications and ability to lawfully operate commercial mot
 The companies whose treatment and hiring policies I am requesting be legally reviewed include:
 
 * Barr-Nunn Transportation
-* Crete Carrier
+* Continental Express
 * Swift Transportation
 * Knight Transportation
 * Werner Enterprises
