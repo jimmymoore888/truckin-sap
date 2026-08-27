@@ -47,7 +47,7 @@ The companies whose treatment and hiring policies I am requesting be legally rev
 * Knight Transportation
 * Werner Enterprises
 * J.B. Hunt
-* CRST Van Expedited - verbally said they do not hire sap 
+* CRST Van Expedited - verbally said they do not hire sap AUG 27th 2026 08:50am 
 
 My concern is not simply that these companies selected another qualified applicant.
 
