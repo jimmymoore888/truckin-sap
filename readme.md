@@ -47,7 +47,8 @@ The companies whose treatment and hiring policies I am requesting be legally rev
 * Knight Transportation
 * Werner Enterprises
 * J.B. Hunt
-* CRST Van Expedited - verbally said they do not hire sap AUG 27th 2026 08:50am 
+* CRST Van Expedited - verbally said they do not hire sap AUG 27th 2026 08:50am
+(319) 731-6337 * CRST Van Expedited — On August 27, 2026, at approximately 8:50 a.m., I contacted CRST regarding my eligibility for rehire. After obtaining my name and Social Security number, the recruiter stated that I was ineligible because of my prior SAP participation. The recruiter referenced Iowa law but did not identify a specific statute. CRST did not review or discuss my completed Return-to-Duty process or current Not Prohibited Clearinghouse status. The recruiter based it solely on my past. Didnt even look or attempt to dive deeper. it was a immediate hang up and disconnect.
 
 My concern is not simply that these companies selected another qualified applicant.
 
